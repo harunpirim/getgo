@@ -1,12 +1,13 @@
-## Welcome to Harun's Pages
-
-Education
+## Welcome to Harun's Page
 
 Research Interests 
 
+
 Work in Progress
 
+
 Projects
+
 
 
 
